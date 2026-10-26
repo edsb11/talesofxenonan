@@ -7,7 +7,7 @@ configuration:
   analytics:
     provider: plausible
   locale: en-US
-  baseUrl: talesofxenonan.github.io
+  baseUrl: edbs11.github.io/talesofxenonan
   ignorePatterns:
     - private
     - templates
