@@ -9,8 +9,7 @@ Cast:
 
 [LC] Little Cat
 
-  
-  
+---
 
 A lone rider crossed a rainy forest. It was dark and cloudy even though the light hadn’t gone. The man wore straw puffs on his neck and arms, and an old brown coat tainted, scratched and stained by time. His head was a dark cloud of puffing black smoke, while his eyes shone white as the moons in the sky.
 
@@ -41,6 +40,7 @@ He kept going with his horse, until his silhouette fades in the water fog.
   
 
 . . .
+
 
 From the dark, the Sigil of Hollow is shown in a yellow glow. Its shape was a triangle with something that reminds you of wings on each side of it.
 
