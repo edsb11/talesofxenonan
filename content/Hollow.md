@@ -588,9 +588,13 @@ Nikolai breathes beastly.
 
 <font color="#e36c09">(MB)</font> The living. Why you become a beast when the living boy came?
 
-<font color="#4f6128">(NT)</font> I AM... EXCITED WITH NEW VISITORS. IT'S NOT EVERYDAY THAT SOMEONE LIKE HIM COMES AROUND TOWN.
+<font color="#4f6128">(NT)</font> I AM... THIS IS...
 
 <font color="#e36c09">(MB)</font> Why a child!? Do you not come for the dead in their tombstones?
+
+Fitzroy looked to Nikolai's eyes. They were empty, almost sad. He could see someone in there, but it was rather hollow. More than anything.
+
+He couldn't see anger under the man's tired shining eyes.
 
 Nikolai let Fitzroy away and shrunk his claws and his entire form, becoming the humanoid man he was.
 
@@ -622,7 +626,13 @@ But the boy raised so fast and slapped her hand before she could touch him.
 
 But Fitzroy didn't care, he ran as fast as possible to the window where the black cat was waiting for him.
 
-He jumped and fell on the mud, staining his white clothing.
+Miss burges' voice echoed for one last time in the halls of that hallowed house.
+
+<font color="#e36c09">(MB)</font> **Lousy child!**
+
+He jumped over the window and fell on the mud, staining his white clothing.
+
+The window closed shut with the howling wind. And it seemed like all the torches and candles were suddenly extinguished.
 
 He ran, stumbling in every rock and water puddle there was in the way. 
 
