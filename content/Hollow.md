@@ -1,224 +1,128 @@
 
 Cast:
 
-[NT] Nikolai Telamon (Hollow)
+<font color="#4f6128">(NT)</font> Nikolai Telamon (Hollow)
 
-[MB] Miss Burges
+<font color="#e36c09">(MB)</font> Miss Burges
 
-[FR] Fitzroy
+<font color="#92cddc">(FZ)</font> Fitzroy
 
-[LC] Little Cat
+<font color="#595959">(LC)</font> Little Cat
 
 ---
 
-A lone rider crossed a rainy forest. It was dark and cloudy even though the light hadn’t gone. The man wore straw puffs on his neck and arms, and an old brown coat tainted, scratched and stained by time. His head was a dark cloud of puffing black smoke, while his eyes shone white as the moons in the sky.
+**Wind howled, and dreams dissipate in the air...**
 
-  
+A lone rider crossed a rainy forest. It was dark and cloudy even though the light hadn’t gone. The man wore straw puffs on his neck and arms, and an old brown coat tainted, scratched and stained by time. His head was a dark cloud of puffing black smoke, while his eyes shone white as the moons in the sky.
 
 He was tired, grabbing the horse guide so he didn’t fall from it. The saddle was old like him, and changed as he was.
 
-  
-
 After crossing some trees, he found a pole stuck in the ground, with a lantern on its edge. 
 
-  
-
-There was also a scarred sign there, it said “Bertha”, while a dirty road followed behind it. A thunder struck like a gun in the skies.
-
-  
+There was also a scarred sign there, it said “Bertha”, while a dirty road followed behind it. A thunder struck like a gun in the skies. 
 
 He grabs the big stick and uses his finger to light fire in the lantern.
 
-  
-
-A dark spark quickly burst into blue flames, which illuminated the surroundings.
-
-  
+A dark spark quickly burst into blue flames, which illuminated the surroundings. 
 
 He kept going with his horse, until his silhouette fades in the water fog.
 
-  
-
 . . .
 
+---
 
 From the dark, the Sigil of Hollow is shown in a yellow glow. Its shape was a triangle with something that reminds you of wings on each side of it.
 
-  
 
-[A Deep old man 's voice] “Nikolai Telamon was his name before this madness. Nobody knew what he was doing, truly. Some liked him as well as some disliked.”
+<font color="#f79646">(A Voice from a deep old man)</font> “Nikolai Telamon was his name before this madness. Nobody knew what he was doing, truly. Some liked him as well as some disliked.”
 
-  
-
-“He became Hollow, from the inside to the outside.”
-
-  
+*“He became Hollow, from the inside to the outside.”*
 
 ...
 
-  
+---
 
 Birds chirped in the tall trees.
 
-  
-
 Sunrays bathed the lands in ease.
-
-  
 
 In the ground of a crop some weird worms struggled to move while lots of vines were swirling in and out from the ground. The worms moved and left green vine wires all around.
 
-  
-
 Suddenly, a furry paw steps and kills some of the worms. A black cat.
-
-  
 
 The cat ran so fast and its paw smashed the ground so hard it seemed the little beast was flying.
 
-  
-
 It had big yellow eyes as glass globes, skimming through every place in front of him.
-
-  
 
 Behind the cat, a boy with sandy hair ran after it. The boy was strangely wearing white sailor suits, and holding its hat so it wouldn’t fall from his head.
 
-  
-
 The boy laughed and scared away the birds on the way.
 
-  
-
-[FR]: Surrender now!!! [Laughs hysterically]
-
-  
+<font color="#92cddc">(FZ)</font> Surrender now!!! He laughed hysterically
 
 The cat jumped through fences and so the boy, the cat ran inside bushes and the boy jumped over. They were chasing each other for very long.
 
-  
-
 They ran toward an orchard and the cat ran towards a big old wooden house at the end of it.
-
-  
 
 The boy felt in wonderment looking around. 
 
-[FR]: Ooooh...
-
-  
+<font color="#92cddc">(FZ)</font> Ooooh...
 
 The orchard was Filled with cherry trees where the boy picked up as much as he deserved, staining his clothes and mouth with red.
 
-  
-
 He spent some minutes there picking up, almost forgetting about the cat.
-
-  
 
 He fell from a small tree and remembered what he was doing.
 
-  
-
-[FR]: Oh kitty!
-
-  
+<font color="#92cddc">(FZ)</font> Oh kitty!
 
 He raised and looked at the house. It was dark and the planks were eaten away. He could hear crying and echoing meows from the inside.
 
-  
-
 The boy picked up a little stone ax from his belt and prepared for any imminent combat.
-
-  
 
 He was brave, a brave boy, he was Fitzroy!
 
-  
-
 In the dark, while Fitzroy stepped in the old cobblestone floor, the cat stopped moaning.
 
-  
-
-[FR]: Hey... Now it’s time to surrender, outlaw!
-
-  
+<font color="#92cddc">(FZ)</font> Hey... Now it’s time to surrender, outlaw!
 
 He kept walking, looking in every direction without seeing anything.
 
-  
-
 Spinning and swirling with the ax in his hand, he bumps on something and everything falls out in his front.
-
-  
 
 It sounded like a bunch of rocks and sticks falling together.
 
-  
-
 But then…
-
-  
 
 Footsteps. The boy hears footsteps coming from somewhere in the hall.
 
-  
-
-It was a shadow. A small humanoid shadow with thick arms and chest. 
-
-  
+It was a shadow. A small humanoid shadow with thick arms and chest.   
 
 In every move the shadow performed, the boy could hear grass sounds.
 
-  
-
 He was terrified. 
 
-  
-
-[FR]: Monster! [Screams]
-
-  
+<font color="#92cddc">(FZ)</font> Monster! [Screams]
 
 The shadow jumps too with the boy.
 
-  
-
 [MB]: Monster? Monster! Where!? Run away!
 
-  
-
-[FR]: Monster! Monster!
-
-  
+<font color="#92cddc">(FZ)</font> Monster! Monster!
 
 The cat screams from the boy’s back, and he accidentally steps on the cat’s tail, making it run away from there.
 
-  
-
-[FR]: No! You! Come back here!
-
-  
+<font color="#92cddc">(FZ)</font> No! You! Come back here!
 
 The boy runs away from the screaming shadow. He cannot see anything and starts bumping on one wall, then the second, and many others to come.
 
-  
-
 Many things fell. Glass was shattering and wood furniture falling.
-
-  
 
 The boy crossed a door frame and saw the two illuminating eyes of that weird cat at the end of a long corridor, and decided to follow.
 
-  
-
 He looked back and he saw the shadow at the main hall. It looked like a moving bush.
 
-  
-
 [MB]: I’m not a monster! - It cried like an old lady.
-
-  
 
 The boy had goosebumps with the horrific cry and ran away where the cat was.
 
@@ -232,7 +136,7 @@ The boy was following, now panting, but still with the ax in his hand.
 
   
 
-[FR]: Where are you going, skunk!?
+<font color="#92cddc">(FZ)</font> Where are you going, skunk!?
 
   
 
@@ -244,7 +148,7 @@ Then, the cat started climbing the wooden walls towards an open hole in the ceil
 
   
 
-[FR]: Hey, where are you going!? No!! Don’t leave me here!
+<font color="#92cddc">(FZ)</font> Hey, where are you going!? No!! Don’t leave me here!
 
   
 
@@ -296,7 +200,7 @@ The boy screamed once again, but so loud the cat’s ears were shaking.
 
   
 
-[FR]: I swear!... I swear I'm gonna be nice next time. I’m not gonna run after anything in my life! PLEASE, PLEASE DON’T HURT ME!!
+<font color="#92cddc">(FZ)</font> I swear!... I swear I'm gonna be nice next time. I’m not gonna run after anything in my life! PLEASE, PLEASE DON’T HURT ME!!
 
   
 
@@ -308,7 +212,7 @@ The carved face of a pumpkin on its head, looking at him with empty eyes.
 
   
 
-[MB][With a sharp voice of an old woman]: Who… You… Be…?
+<font color="#e36c09">(MB)</font> Who… You… Be…?
 
   
 
@@ -316,11 +220,11 @@ The carved face of a pumpkin on its head, looking at him with empty eyes.
 
   
 
-[MB]: You call me Miss Burges.
+<font color="#92cddc">(FZ)</font> You call me Miss Burges.
 
   
 
-[FR]: S-Sorry for… This…
+<font color="#92cddc">(FZ)</font> S-Sorry for… This…
 
   
 
@@ -328,11 +232,11 @@ And she started screaming like an angry grandmother.
 
   
 
-[MB]: Don’t come home ever again! You bad bad bad child!
+<font color="#e36c09">(MB)</font> Don’t come home ever again! You bad bad bad child!
 
   
 
-[FR]: I’m sorry, ow! I’m sorry!
+<font color="#92cddc">(FZ)</font> I’m sorry, ow! I’m sorry!
 
   
 
@@ -340,11 +244,11 @@ She started picking up on his ear and lifting him up, and Fitzroy felt her bony 
 
   
 
-[MB]: You call old woman monster! Who taught that to child!?
+<font color="#e36c09">(MB)</font> You call old woman monster! Who taught that to child!?
 
   
 
-[FR]: Aaaaaaargh!!
+<font color="#92cddc">(FZ)</font> Aaaaaaargh!!
 
   
 
@@ -356,15 +260,15 @@ The cat jumped back down, and curiously followed them.
 
   
 
-[MB]: What your name, child!?
+<font color="#e36c09">(MB)</font> What your name, child!?
 
   
 
-[FR]: Ow, Fitzroy! I already told ya!
+<font color="#92cddc">(FZ)</font> Ow, Fitzroy! I already told ya!
 
   
 
-[MB]: Lousy child clean up everything!
+<font color="#e36c09">(MB)</font> Lousy child clean up everything!
 
   
 
@@ -372,7 +276,7 @@ And she released him, tossing a broom and a bucket to Fitzroy.
 
   
 
-[MB]: You put the broken things in bucket, and clean dust everywhere!
+<font color="#e36c09">(MB)</font> You put the broken things in bucket, and clean dust everywhere!
 
   
 
@@ -380,7 +284,7 @@ Fitzroy held the broom, and clenched his fists on the stick.
 
   
 
-[FR]: You’re not my grandma! You can’t tell me to do things [Showing up his tongue]
+<font color="#92cddc">(FZ)</font> You’re not my grandma! You can’t tell me to do things [Showing up his tongue]
 
   
 
@@ -388,11 +292,11 @@ Then the little black cat came along and rubbed himself in Miss Burges’ straw-
 
   
 
-[FR]: Hey, granny. Is this your cat?
+<font color="#92cddc">(FZ)</font> Hey, granny. Is this your cat?
 
   
 
-[MB]: Yes! My cat it is!
+<font color="#e36c09">(MB)</font> Yes! My cat it is!
 
   
 
@@ -492,7 +396,7 @@ But then, when he raised from the floor, the lady noticed him…
 
   
 
-[MB]: Child. Is it not too soon to come?
+<font color="#e36c09">(MB)</font>Child. Is it not too soon to come?
 
   
 
@@ -500,7 +404,7 @@ Fitzroy stared.
 
   
 
-[FR]: Well… I was supposed to be home now. I think it’s late for me, already.
+<font color="#92cddc">(FZ)</font> Well… I was supposed to be home now. I think it’s late for me, already.
 
   
 
@@ -508,7 +412,7 @@ She looked down for a few seconds, then she looked up.
 
   
 
-[MB]: The picture. It is me. It is my husband. It is my cat.
+<font color="#e36c09">(MB)</font>The picture. It is me. It is my husband. It is my cat.
 
   
 
@@ -516,11 +420,11 @@ Fitzroy looked at her, and the cat. But something was missing… Her husband?
 
   
 
-[FR]: Then why… Why are you wearing this? Am I not supposed to see your face?
+<font color="#92cddc">(FZ)</font>Then why… Why are you wearing this? Am I not supposed to see your face?
 
   
 
-[MB]: No… You not supposed here.
+<font color="#e36c09">(MB)</font>No… You not supposed here.
 
   
 
@@ -528,11 +432,11 @@ The cat jumped between couches and looked at the boy while Miss Burges talked.
 
   
 
-[MB]: You can come here when you done with everything. Everything.
+<font color="#e36c09">(MB)</font>You can come here when you done with everything. Everything.
 
   
 
-[FR]: I’m not… I don’t understand, miss.
+<font color="#92cddc">(FZ)</font> I’m not… I don’t understand, miss.
 
   
 
@@ -544,7 +448,7 @@ While that, the lady kept talking.
 
   
 
-[MB]: That common here, child. People here, they come after everything set for them.
+<font color="#e36c09">(MB)</font>That common here, child. People here, they come after everything set for them.
 
   
 
@@ -552,15 +456,15 @@ Fitzroy grabbed another bucket and tossed more shards inside.
 
   
 
-[MB]: I, me, myself, found good life here. Better than before.
+<font color="#e36c09">(MB)</font>I, me, myself, found good life here. Better than before.
 
   
 
-[FR]: You lived in another city? 
+<font color="#92cddc">(FZ)</font> You lived in another city? 
 
   
 
-[MB]: Another life. Yes. Another time. Another world.
+<font color="#e36c09">(MB)</font>Another life. Yes. Another time. Another world.
 
   
 
@@ -580,7 +484,7 @@ Both of them looked, unprepared.
 
   
 
-[FR]: Is that… Your husband?
+<font color="#92cddc">(FZ)</font> Is that… Your husband?
 
   
 
@@ -592,7 +496,7 @@ Nikolai Telamon, the Hollow. He was taller as the door frame when he opened the 
 
   
 
-[MB]: Knock before open, gnome! Oh… OH! Oh… I’m sorry, I’m sorry!
+<font color="#e36c09">(MB)</font>Knock before open, gnome! Oh… OH! Oh… I’m sorry, I’m sorry!
 
   
 **
