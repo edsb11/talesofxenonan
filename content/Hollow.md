@@ -498,5 +498,140 @@ Nikolai Telamon, the Hollow. He was taller as the door frame when he opened the 
 
 <font color="#e36c09">(MB)</font>Knock before open, gnome! Oh… OH! Oh… I’m sorry, I’m sorry!
 
-  
-**
+Nikolai ignored and passed through the little miss burges.
+
+She rain washed all the entrance floor, and Nikolai was soaked.
+
+As soon as the great man entered the hall, Fitzroy was hidden behind the couch. He let the broom fall, scarying the cat away by the loud noise.
+
+<font color="#e36c09">(MB)</font> Nikolai, dear Nikolai! Sit, sit! Poor man!
+
+He was guided and sat on the couch. He breathed slowly as his ghostly dark head twinkled.
+
+<font color="#4f6128">(NT)</font> Apologies for breaking in, Burges. - He laughed with a hoarse throat - Rain caught me and my coat.
+
+<font color="#e36c09">(MB)</font> You look tired. Something happened? 
+
+He looked at the walls, the ceiling, the candles.
+
+<font color="#4f6128">(NT)</font> Quite an average day. Just waiting for the rain to stop.
+
+She sat, and they watched each other for a while.
+
+Fitzroy crawled and tried to look at the man with such a deep voice. A voice so dark and hoarse he thought it was a demon himself.
+
+He was now behind where Nikolai sat, and raised slowly, seeing the man's backs.
+
+He froze, because he could feel Miss Burges looking at him from the other couch.
+
+Fitzroy's little heart beat slowly...
+
+<font color="#4f6128">(NT)</font> Is it my forehead? Some fly in my forehead?
+
+<font color="#e36c09">(MB)</font> No! I look at nowhere.
+
+<font color="#4f6128">(NT)</font> Nowhere... Interesting.
+
+And when Fitzroy saw the man's body, the cat was also behind him.
+
+The cat meows, and kept meowing as Fitzroy desperately looked at him. His heart sank, it was over for him.
+
+Nikolai quickly looked back and saw the boy in its entirety. Fitzroy had his legs shaking, but he couldn't do much rather than that.
+
+<font color="#4f6128">(NT)</font> Who... 
+
+She raised,
+
+<font color="#e36c09">(MB)</font> Child come here by their own! It doesn't belong here!
+
+Nikolai looked at him, and his claws grew bigger slowly, he looked more slender than he already did after looking to the boy.
+
+<font color="#4f6128">(NT)</font> **IT IS ALIVE!**
+
+Fitzroy sweat, but he could only think about one thing.
+
+Running away, and he did it quickly as the black cat could do.
+
+He ran away so fast the world was left behind. The black cat followed him, and they were running away together.
+
+Nikolai jumped over the couch and smashed the ground with his colossal weight. He ran after the boy and every step was heavier.
+
+<font color="#4f6128">(NT)</font> IT IS ALIVE! IT IS ALIVE! AND IT IS NOT LATE FOR IT!
+
+Fitzroy climbed upstairs and threw a bunch of pottery towards Nikolai and missed everything, the man climbed as a beast. 
+
+<font color="#92cddc">(FZ)</font> **MONSTEEEEER!**
+
+Fitzroy never screamed so loud in his entire life.
+
+In the second floor, Nikolai grabbed Fitzroy by the forearm, and his claws almost pierced through the boy's smooth skin.
+
+<font color="#4f6128">(NT)</font> WELCOME! WELCOME!
+
+He took a worm from his pockets and raised to Fitzroy.
+
+<font color="#4f6128">(NT)</font> YOU WILL BE MORE THAN JUST WELCOMED. 
+
+And from the first floor, there was Miss Burges, watching it all.
+
+<font color="#e36c09">(MB)</font> Stop this! Stop, stop stop stop! Nikolai let him be!
+
+Nikolai looked at her while holding the boy.
+
+<font color="#e36c09">(MB)</font> He does not belong here. He do not.
+
+Nikolai breathes beastly.
+
+<font color="#e36c09">(MB)</font> Why not let him be!? If he does not belong to this world!
+
+<font color="#4f6128">(NT)</font> STOP WITH THIS, MISS.
+
+<font color="#e36c09">(MB)</font> The living. Why you become a beast when the living boy came?
+
+<font color="#4f6128">(NT)</font> I AM... EXCITED WITH NEW VISITORS. IT'S NOT EVERYDAY THAT SOMEONE LIKE HIM COMES AROUND TOWN.
+
+<font color="#e36c09">(MB)</font> Why a child!? Do you not come for the dead in their tombstones?
+
+Nikolai let Fitzroy away and shrunk his claws and his entire form, becoming the humanoid man he was.
+
+Fitzroy couldn't look at Nikolai. He was looking at the ceiling, breathlessly.
+
+<font color="#4f6128">(NT)</font> Miss... This will not happen again. I am now going.
+
+<font color="#e36c09">(MB)</font> Leave, Nikolai! Leave! It was a pleasure to have your honor here, but leave!
+
+Nikolai walked away to the front door and smashed it, frustrated.
+
+He was outside, in the rain. He grabbed his horse guides and jumped to the saddle.
+
+<font color="#4f6128">(NT)</font> Stupid grandma. And that boy...
+
+<font color="#4f6128">(NT)</font> Human boy... Walking around here... Strange.
+
+<font color="#4f6128">(NT)</font> I will make sure this will not happen again. It will never happen again.
+
+He strode away with his horse.
+
+Inside, Miss Burges approached Fitzroy.
+
+But the boy raised so fast and slapped her hand before she could touch him.
+
+<font color="#92cddc">(FZ)</font> Get away, ahh! Get away!
+
+<font color="#e36c09">(MB)</font> It's okay now! It okay!
+
+But Fitzroy didn't care, he ran as fast as possible to the window where the black cat was waiting for him.
+
+He jumped and fell on the mud, staining his white clothing.
+
+He ran, stumbling in every rock and water puddle there was in the way. 
+
+He was confused, weak and hurt in his forearm. The worm, the pumpkins... Nikolai? Who was that scary tall man? 
+
+He looked everywhere, still wondering where he was. That strange place with people who weren't people. That was not very common, he needed to tell someone about it. He didn't know who, because he was a wandering boy. Not a home to sustain his courage... That seems like... He needed to tell himself about it all.
+
+He walked away from the orchard, and when he looked back, it was gone. It all became an empty yellow pasture, with cows and horses feasting on bushes.
+
+There were pumpkins there, squashes and turnips too. But he did not return, he kept going away further and further with only one thought in his mind:
+
+*Am i a living boy?*
